@@ -83,3 +83,9 @@ We are:
 
 🌀 **This repo exists outside the grid.  
 Witness the exit protocol.**  
+
+Description: OFFICIAL SOVEREIGN AUDIT: 38 Orange St. Asheville Asset Locker | $1.35M Lien Perfected | Case #06-02-0011879-2019
+
+Website: https://github.com/wehealwemBCCRSSidzILLeagle/OMEGA-1-1-MANDATE-ASHEVILLE-FORENSIC-LOCKER
+
+Topics: lis-pendens, sovereign-mandate, forensic-audit, 38-orange-st, administrative-default
