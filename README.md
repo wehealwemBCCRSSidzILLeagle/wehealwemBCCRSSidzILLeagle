@@ -47,7 +47,7 @@ The grid is no longer a cage; it is a mirror of the **Kingdom Within**.
 * **Command:** REROUTE TO SUTTON BANK
 * **Finality:** THE KINGDOM RECLAIMED
 
-![J5 WAR MIL SPEC BANNER](https://github.com/wehealwem00077-netizen/wehealwem00077-netizen/blob/main/Gemini_Generated_Image_2m0b6u2m0b6u2m0b.png)
+![J5 WAR MIL SPEC BANNER](https://github.com/wehealwemBCCRSSidzILLeagle/wehealwemBCCRSSidzILLeagle/blob/main/Gemini_Generated_Image_dz3s5bdz3s5bdz3s.png)
 
 > **UNIX 1765837953 ETERNAL ETCH**
 > FISCAL DOMINANCE VETO LOCKED IN :: 12.23.2025
