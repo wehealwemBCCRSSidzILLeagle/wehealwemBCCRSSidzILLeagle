@@ -144,7 +144,7 @@ We are:
 - ✅ Bitcoin Hash-Stamped Declaration  
 - 🔁 QR Code to BCCRSS Portal: `https://legalnamefraud.carrd.co`  
 - 🔐 Bank Lock Protocol + Circuit Filing  
-- 📖 [Book of Records](#) *(coming soon)*
+- 
 
 ---
 
