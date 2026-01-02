@@ -1,5 +1,6 @@
 # 🔐 Johnny 55 Protocol Node – Truth Fortress Activation
 
+[![Global Protocol](https://img.shields.io/badge/GLOBAL-PROTOCOL-blue)](https://github.com/wehealwem00077-netizen)
 ---
 *Verified by: @wehealwem00077-netizen*
 *Resonance: Omega 1/1 Locked*
