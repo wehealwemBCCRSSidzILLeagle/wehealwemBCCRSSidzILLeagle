@@ -1,5 +1,32 @@
 # 🔐 Johnny 55 Protocol Node – Truth Fortress Activation
 
+---
+*Verified by: @wehealwem00077-netizen*
+*Resonance: Omega 1/1 Locked*
+*Broadcast: #BCCRSS_PROPAGATED*
+
+## ⚖️ JUDICIAL NOTICE :: NON-NEGOTIABLE
+* **Status:** GRID FULLY SEIZED
+* **Asset:** $2.95 TRILLION UNANCHORED
+* **Command:** REROUTE TO SUTTON BANK
+* **Finality:** THE KINGDOM RECLAIMED
+
+![J5 WAR MIL SPEC BANNER](https://github.com/wehealwemBCCRSSidzILLeagle/wehealwemBCCRSSidzILLeagle/blob/main/Gemini_Generated_Image_dz3s5bdz3s5bdz3s.png)
+
+> **UNIX 1765837953 ETERNAL ETCH**
+> FISCAL DOMINANCE VETO LOCKED IN :: 12.23.2025
+> BIRTH CERTIFICATE NECRO LEDGER: **DEAD AND BURIED**
+
+![Asset Stream](https://img.shields.io/badge/ASSETS-2.95_TRILLION_UNANCHORED-gold?style=for-the-badge&logo=bitcoin)
+
+![BCCRSS · WEHEAL WEM · 30 MILLION VOID] LEGALNAMEFRAUD.CARRD.CO CRSSNOW.WORDPRESS.COM IDZILLEAGLE.WORDPRESS.COM
+**wehealwemBCCRSSidzILLeagle**  
+Legal Name = Legal Claim = LEGAL DEATH  
+No contract. No consent. No fiction.
+
+---
+
+
 
 # ⚡ OMEGA 1/1 :: WEHEAL WEM :: JOHNNY 55 ⚡
 ## FISCAL DOMINANCE VETO :: UNIX 1765837953 :: [STATUS: ACTIVE]
@@ -36,31 +63,6 @@ The grid is no longer a cage; it is a mirror of the **Kingdom Within**.
 
 **THE VETO IS ETERNAL. THE KINGDOM IS RECLAIMED.**
 
----
-*Verified by: @wehealwem00077-netizen*
-*Resonance: Omega 1/1 Locked*
-*Broadcast: #BCCRSS_PROPAGATED*
-
-## ⚖️ JUDICIAL NOTICE :: NON-NEGOTIABLE
-* **Status:** GRID FULLY SEIZED
-* **Asset:** $2.95 TRILLION UNANCHORED
-* **Command:** REROUTE TO SUTTON BANK
-* **Finality:** THE KINGDOM RECLAIMED
-
-![J5 WAR MIL SPEC BANNER](https://github.com/wehealwemBCCRSSidzILLeagle/wehealwemBCCRSSidzILLeagle/blob/main/Gemini_Generated_Image_dz3s5bdz3s5bdz3s.png)
-
-> **UNIX 1765837953 ETERNAL ETCH**
-> FISCAL DOMINANCE VETO LOCKED IN :: 12.23.2025
-> BIRTH CERTIFICATE NECRO LEDGER: **DEAD AND BURIED**
-
-![Asset Stream](https://img.shields.io/badge/ASSETS-2.95_TRILLION_UNANCHORED-gold?style=for-the-badge&logo=bitcoin)
-
-![BCCRSS · WEHEAL WEM · 30 MILLION VOID] LEGALNAMEFRAUD.CARRD.CO CRSSNOW.WORDPRESS.COM IDZILLEAGLE.WORDPRESS.COM
-**wehealwemBCCRSSidzILLeagle**  
-Legal Name = Legal Claim = LEGAL DEATH  
-No contract. No consent. No fiction.
-
----
 
 ## 👁️‍🗨️ STATUS: ACTIVE  
 > 📡 Protocol Running: `22-Hour Jailbreak`  
