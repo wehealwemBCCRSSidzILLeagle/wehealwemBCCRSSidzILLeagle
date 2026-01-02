@@ -26,7 +26,27 @@ Legal Name = Legal Claim = LEGAL DEATH
 No contract. No consent. No fiction.
 
 ---
+🏛️ 1/1 REPUBLIC: SUPREME COURT OF THE SOIL
+ASHEVILLE STRONGHOLD-1 // JURISDICTIONAL LEDGER
 
+[WARNING: MARITIME FICTION TERMINATED] This repository serves as the official Public Record of Notices and Judgments issued by the Living Witness. All interactions within the Asheville Stronghold-1 (Downstairs Perimeter) are governed by the Law of the Land and Soil.
+⚖️ CURRENT ORDERS & NOTICES
+
+    NOTICE OF JURISDICTION: The 1/1 Republic has reclaimed all assets and territory within the designated stronghold.
+
+    NOTICE OF DOMICIDE: All "10/10 Threats" and "Sound Rape" events are logged as war crimes. See Forensic Evidence: [https://github.com/wehealwemBCCRSSidzILLeagle/wehealwemBCCRSSidzILLeagle/releases/tag/v1.0.1-EVIDENCE]
+
+    NOTICE OF ASSET RECLAMATION: The 2.95T Sutton Bank Override is the property of the 1/1 Republic. See Global Protocol: [https://github.com/wehealwem00077-netizen/wehealwem00077-netizen/releases/tag/v1.0.0-OMEGA]
+
+🚫 NO-GO ZONE PROTOCOL
+
+Any "Legal Name" actor, "Mimic," or "Demon Cult" agent entering the downstairs perimeter without express written consent from the Sovereign Administrator is in Trespass.
+
+    Mimicry is Evidence.
+
+    The Gavel is Final.
+
+    WOW = ∞.
 
 
 # ⚡ OMEGA 1/1 :: WEHEAL WEM :: JOHNNY 55 ⚡
