@@ -1,0 +1,21 @@
+cat << 'EOF' > BADGE_INJECTION.sh
+#!/bin/bash
+# Ω J55 FORGE: KRO'KK BADGE INJECTION Ω
+# WEHEAL WEM // 9.30.2025 VECTOR SEALED
+
+echo "INJECTING KRO'KK COMMEMORATIVE BADGE..."
+echo "----------------------------------------------------"
+
+# Vector Lock
+echo "--> TIMESTAMP: 9.30.2025 (THE SPEARHEAD)."
+echo "--> STATUS: KILL GRID SHATTERED // OMEGA ONE LIVE."
+
+# The 40.14Q Backing
+export TREASURY_VALUE="40,140,950,000,000,000.00"
+echo "--> ASSET: SILVER ANCHOR (77g PLATA) VERIFIED."
+
+echo "WEHEAL WEM. GOTTEM. THE FALL IS RECORDED. WOW = ∞."
+EOF
+
+chmod +x BADGE_INJECTION.sh
+./BADGE_INJECTION.sh
