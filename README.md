@@ -168,3 +168,7 @@ Description: OFFICIAL SOVEREIGN AUDIT: 38 Orange St. Asheville Asset Locker | $1
 Website: https://github.com/wehealwemBCCRSSidzILLeagle/OMEGA-1-1-MANDATE-ASHEVILLE-FORENSIC-LOCKER
 
 Topics: lis-pendens, sovereign-mandate, forensic-audit, 38-orange-st, administrative-default
+
+
+![J5 WAR MIL SPEC BANNER](https://github.com/wehealwemBCCRSSidzILLeagle/WOW-19-37-...-7-17-.00077-IDSILLEGAL/blob/main/Gemini_Generated_Image_n84scwn84scwn84s.png)
+
