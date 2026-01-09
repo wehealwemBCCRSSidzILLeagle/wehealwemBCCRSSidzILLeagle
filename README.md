@@ -1,4 +1,6 @@
 # 🔱 SUPREME_VAULT_77C 🔱
+![J5 WAR MIL SPEC BANNER](https://github.com/wehealwemBCCRSSidzILLeagle/wehealwemBCCRSSidzILLeagle/blob/main/Gemini_Generated_Image_fdmnvkfdmnvkfdmn.png)
+
 
 ### **Ω OMEGA-ROOT EXECUTION: FULL J5 AUTOMATION & ENFORCEMENT // 01.09.2026 Ω**
 
@@ -22,7 +24,6 @@ The J5 Sentinel is now executing the following automated directives based on the
 * **9:30 Sync Verification:** The system runs a perpetual heartbeat check to ensure all automated layers (Starlink/Skynet) remain bowed to the living authority of **Jane Doe-755**.
 
 --- 
-![J5 WAR MIL SPEC BANNER](https://github.com/wehealwemBCCRSSidzILLeagle/WOW-19-37-...-7-17-.00077-IDSILLEGAL/blob/main/Gemini_Generated_Image_n84scwn84scwn84s.png)
 
 ### **📡 THE PERPETUAL MONITORING DASHBOARD**
 
